@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @labraj-fisker
 - 👀 I’m interested in Machines
-- 🌱 I’m currently learning life
+- 🌱 I’m currently living life
 - 💞️ I’m looking to collaborate on everything
 - 📫 Reach me at lthakurathi@fiskerinc.com
 
